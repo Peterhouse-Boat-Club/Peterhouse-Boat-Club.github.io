@@ -33,7 +33,7 @@ was perfectly timed to inspire us.
 
 The Fairbairn start was above our own Peterhouse footbridge. Gordon took
 us off at an outrageous rating, enthusiastically supported. (It was
-clocked at 44.) We were up to 1^st^ and 3^rd^'s rudder by the Gasworks.
+clocked at 44.) We were up to 1<sup>st</sup> and 3<sup>rd</sup>'s rudder by the Gasworks.
 Their cox ceded to David and gave us the bend at Chesterton. We were
 driving past them by the Pike and Eel.
 
@@ -43,7 +43,7 @@ approaching Baitsbite.
 
 At the finish, the recorder was writing times on the list of crews, in
 starting order, when someone tapped him on the shoulder and said "That
-wasn't 1^st^ and 3^rd^!"
+wasn't 1<sup>st</sup> and 3<sup>rd</sup>!"
 
 Ernie was right, bless him, -- we'd won.
 
@@ -178,8 +178,8 @@ various rowing styles. At one point, the first eight, who were said to
 prefer looking elegant to actually moving the boat fast, was
 consistently slower than the second boat. The second boat, with coaches
 from Jesus had taken up the Fairbairn bellnote style. This latter style
-was certainly in vogue in my time."* Our charts show the 1^st^ boat
-dropping in 47/48, while 2^nd^ and 3^rd^ boats shot up.
+was certainly in vogue in my time."* Our charts show the 1<sup>st</sup> boat
+dropping in 47/48, while 2<sup>nd</sup> and 3<sup>rd</sup> boats shot up.
 
 So there you see it -- the Fairbairn approach. Duckworth, Hugh Beach's
 appointee, was a Jesus man, in the winning blue boats of 34, 35 and 36.
@@ -208,7 +208,7 @@ Captains in those years were: Marston Tickell (48/49); Maurice Temple
 Smith(49/50); Alan Quilter (50/51); Robert Elphick (51/52); Michael Rodd
 (52/53); Paul Hewlett (53/54); and Howard Leach (54/55)
 
-Bob Elphick, never bumped during three years in the 1^st^ boat, also
+Bob Elphick, never bumped during three years in the 1<sup>st</sup> boat, also
 reports:
 
 *"We used to go out every afternoon, Monday to Saturday. On Sundays Alan
@@ -267,7 +267,7 @@ violin and a copy of the fiercely difficult Wieniawski concerto. Must
 have been quite a gal! B.}
 
 Bob provided this photo of the '51 Lents crew which took us back into
-the 1^st^ division.
+the 1<sup>st</sup> division.
 
 Good reach and stride, - and well-balanced. A competent crew, for sure!
 
@@ -286,7 +286,7 @@ Hardy, John Smallwood. Max Pennington in front .We made two bumps.
 
 *Temple Smith, Alan Quilter and I were successive Captains of Boats.
 Maurice Temple-Smith took time out of the boat that term to do some
-coaching and get a 1^st^ in English.*
+coaching and get a 1<sup>st</sup> in English.*
 
 ..........................................................
 
@@ -298,7 +298,7 @@ Freshly returned from a remote tropical country, I was encouraged by my
 good school-friend Paul Hewlett to take up rowing. Little did I know
 what lay ahead!
 
-My first memories are of the **2^nd^ boat in the '53 Fairbairn**.
+My first memories are of the **2<sup>nd</sup> boat in the '53 Fairbairn**.
 
 Bow man was another innocent abroad -- Chris Calladine.
 
@@ -319,12 +319,12 @@ Little St. Mary's Lane. It was some time before my right foot caught up
 with the pedal. That fruit punch was memorable!
 
 The Lent term saw me trying to get to grips with Maths, Physics and
-Chemistry, so I opted for the less demanding schedule of the 3^rd^ boat.
+Chemistry, so I opted for the less demanding schedule of the 3<sup>rd</sup> boat.
 So did the man who would be Captain the following year - Howard Leach.
 Less demanding? We rowed seven full-course races in the four days of
 those Lents and learnt all about exhaustion. While we were struggling in
-the basement, the 1^st^ boat continued to rise, bumping Corpus Christi.
-At the end of term, a trip to the Reading Head in the 1^st^ boat was an
+the basement, the 1<sup>st</sup> boat continued to rise, bumping Corpus Christi.
+At the end of term, a trip to the Reading Head in the 1<sup>st</sup> boat was an
 honour indeed! That crew contained Martin (cox), Paul Hewlett at stroke,
 plus Burn, Oxley, Leach, Newth, Gear, Davis and Hood.
 
@@ -385,7 +385,7 @@ Dodds at 4, Geoff Poolman at 3, Bill Gear at 2 and Mike Herten at bow.
 Our cox was now Christopher Phelps, a fine mathematician and also a man
 with a determined voice and a keen eye for a good course. Without
 knowing it, we had brought together much of the core of the '56 gang. We
-came 5^th^ = with 1^st^ and 3^rd^ in 15:55.
+came 5<sup>th</sup> = with 1<sup>st</sup> and 3<sup>rd</sup> in 15:55.
 
 ![](/you_can_win_this/media/image8.jpeg)
 
@@ -449,7 +449,7 @@ course didn't know that then
 With our equanimity somewhat disturbed, we set off for Henley. Three
 crew changes -- Gordon Hewlett (Paul's younger brother and now in his
 first year) replaced John Bartlett at 7; Robert van Hoeken (another new
-face in the 1^st^ boat) replaced Bill Gear at 3 and David Longley
+face in the 1<sup>st</sup> boat) replaced Bill Gear at 3 and David Longley
 replaced Geoff Poolman at bow.
 
 We had the great good fortune to be coached briefly by Charles Rew, of
@@ -505,7 +505,7 @@ to the University IVs. Still not sure of ourselves, we entered the
 clinker division.
 
 A clue that we might be doing something right, came one sunny afternoon
-in Long Reach. Behind us came Jesus' 1^st^ fine coxless four. It quickly
+in Long Reach. Behind us came Jesus' 1<sup>st</sup> fine coxless four. It quickly
 became apparent that they wanted to get to Ditton before us -- their
 rating went up a touch. Now a moment's digression, if I may \... Danny
 had told us a lovely story about rowing in a combined Northern and
@@ -526,7 +526,7 @@ confessed, he asked me why we weren't rowing a shell, to which I said
 that we still weren't all that sure of our balance. He just snorted!
 
 On our way to winning the University coxed fours, we beat Kings, Queens
-B, 1^st^ and 3^rd^, Queens A and Lady Margaret -- our first win since
+B, 1<sup>st</sup> and 3<sup>rd</sup>, Queens A and Lady Margaret -- our first win since
 1900.
 
 ![](/you_can_win_this/media/image12.jpeg)
@@ -588,7 +588,7 @@ quite sure how that worked, 'cos timing stayed perfect -- maybe it was
 telepathy.
 
 There was one other memorable incident during that term, for me at any
-rate. I was coaching the 2^nd^ boat on a pleasant sunny afternoon. On
+rate. I was coaching the 2<sup>nd</sup> boat on a pleasant sunny afternoon. On
 the way back upstream, coming round Ditton, I was opposite the bow,
 watching the bobble to see if there was any checking. Actually, there
 wasn't, so their sliding was smooth and their beginnings were O.K. Into
@@ -612,8 +612,8 @@ asked what event. I told him it would be the Ladies and he said "Oh --
 we'll be in that, too."
 
 Briefly back to the Lents. On the first day Maggie escaped by bumping
-1^st^ and 3^rd^, but we were already breathing down their necks when
-that happened. 1^st^ and 3^rd^ took us to the Glasshouses on the
+1<sup>st</sup> and 3<sup>rd</sup>, but we were already breathing down their necks when
+that happened. 1<sup>st</sup> and 3<sup>rd</sup> took us to the Glasshouses on the
 Thursday and Maggie held on to the Railings on the Friday, leaving us
 only Jesus to catch.
 
@@ -621,7 +621,7 @@ only Jesus to catch.
 
 **Coming out of Grassy on the Friday**, -- bows beginning to lift.
 
-1^st^ and 3^rd^ well behind us. Maggie's puddles frothing alongside our
+1<sup>st</sup> and 3<sup>rd</sup> well behind us. Maggie's puddles frothing alongside our
 bow.
 
 Now folks were sitting up and taking notice, even the Times. Jesus gave
@@ -697,8 +697,8 @@ them under the runner beds. That worked a treat and all felt right
 again.
 
 The second boat came to Reading with us, entered in the clinker
-division. I've no record of how they did. We started out in 14^th^ spot
-and finished 3^rd^, beating such crews as the Royal Air Force (a strong
+division. I've no record of how they did. We started out in 14<sup>th</sup> spot
+and finished 3<sup>rd</sup>, beating such crews as the Royal Air Force (a strong
 club in those days) and London University. Thames, the defenders, won
 again. Jesus almost won but came second. Thames 16:16, Jesus 16:18;
 Pothouse 16:28. Mind you, we had traffic ... somewhat hectic as crews
@@ -737,7 +737,7 @@ daily use back then. There was no bar in college.
 
 The bumps went as well as could be expected. I don't think we had to go
 round First Post Corner, but if we did, it wasn't far. We bumped Caius,
-Cath's, King's, Maggie II and 1^st^ and 3^rd^ II. While we were doing
+Cath's, King's, Maggie II and 1<sup>st</sup> and 3<sup>rd</sup> II. While we were doing
 that, Magdalene, ahead of us and separated by one boat, were also
 winning their oars.
 
@@ -749,7 +749,7 @@ Bright, Hewlett, Bartlett, Oxley, Smith, Jackson, van Hoeken, Metcalf,
 Harper.
 
 One more memorable moment. It was after the Mays, and the exams were
-over. The 2^nd^ boat (I think) wanted an outing and I rode alongside
+over. The 2<sup>nd</sup> boat (I think) wanted an outing and I rode alongside
 enjoying a sunny afternoon. Heading down below Chesterton into Long
 Reach, the boat was towards the other side of the river, when along came
 a big cruiser dragging a huge wash behind it. Powerless, I could only
@@ -894,7 +894,7 @@ the crew and Tom, with the Ladies Plate nestling between our two super
 coxes, Christopher and David. Other Petreans were surely there in
 spirit!
 
-The Sunday Times of July 8^th^ 1956 carried the following:
+The Sunday Times of July 8<sup>th</sup> 1956 carried the following:
 
 ## GRAND GOES TO GREAT FRENCH ARMY CREW
 
@@ -936,7 +936,7 @@ stated firmly "and this year it would have been Peterhouse."
 
 ...................................
 
-The Daily Telegraph of December 5^th^ announced:
+The Daily Telegraph of December 5<sup>th</sup> announced:
 
 *3 PETERHOUSE MEN IN TRIAL. CAMBRIDGE PLANS.*
 
@@ -979,7 +979,7 @@ generation, unbroken. Roland Mayer said it well -- "... continuity of
 fellowship which obliterates the years."
 
 P.L.Hooson, who had been PBC's Hon. Sec. in 1892, corresponded and came
-to our celebratory supper on Nov. 10^th^ '56. He could conceivably have
+to our celebratory supper on Nov. 10<sup>th</sup> '56. He could conceivably have
 known older men who had been youngsters when our club began - who knows?
 
 H.A.Sams, (1894 -- 1897 and who penned the foreword to the 1935 reprint

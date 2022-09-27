@@ -76,9 +76,9 @@ ourselves for later. Nowadays it would be called "interval training". We
 didn't worry about how we looked, and if we wanted to we turned our
 heads to watch our blades enter the water; maybe because of this our
 balance was terrible and it should be discouraged except for beginners.
-I made it to the 1^st^ May boat that year, and I considered it to be a
+I made it to the 1<sup>st</sup> May boat that year, and I considered it to be a
 great honour. The following year I was in the Lent boat that won its
-oars to go up to 7^th^ place. I didn't row in the Mays, because I wanted
+oars to go up to 7<sup>th</sup> place. I didn't row in the Mays, because I wanted
 to get a first in Mechanical Sciences, which I accomplished.*
 
 *I firmly believe that it was the "palace revolution" and the adoption
@@ -135,18 +135,18 @@ hundred ways to play a note on a piano, but mine wasn't one of them! I
 also played saxophone and clarinet in an undergraduate dance band.*
 
 *By the May 1955 term I was exhausted from rowing \-- it was my fourth
-year in the 1^st^ boat -- so I stood down and coached the 1^st^ and
-2^nd^ boats instead. We concentrated on carrying through a strong entry
-to a strong finish. The 1^st^ boat was a disappointment. I remember
+year in the 1<sup>st</sup> boat -- so I stood down and coached the 1<sup>st</sup> and
+2<sup>nd</sup> boats instead. We concentrated on carrying through a strong entry
+to a strong finish. The 1<sup>st</sup> boat was a disappointment. I remember
 asking Martin Bartlett what he thought was wrong. He kindly suggested
 that they needed me in the boat. I wasn't a heavyweight and I didn't
 think that I would have been that much more effective than whoever
 replaced me.*
 
-*The 2^nd^ boat was another matter. I had been coaching them all year
+*The 2<sup>nd</sup> boat was another matter. I had been coaching them all year
 and they were a great crew. By the end of the May term I felt they were
-as fast as the 1^st^ boat. They won their oars in the Mays. The
-subsequent merging of the 1^st^ and 2^nd^ boat crews must have given the
+as fast as the 1<sup>st</sup> boat. They won their oars in the Mays. The
+subsequent merging of the 1<sup>st</sup> and 2<sup>nd</sup> boat crews must have given the
 '55-56 year a tremendous start. At the reunion 10 years ago I was
 talking to Dave Nelson. He was a big guy who was in that 2nd boat. When
 I spoke to him he was a US Federal Appeals Court Sixth Circuit justice,
@@ -164,12 +164,12 @@ remembered. I fell for her \-- and not just a little. But Jo decided
 that Brian was the one. They were married soon after the end of that
 year, and are still together today, as I write, fifty years later.*
 
-\[Comment: Howard's remarks on the '55 Mays 2^nd^ boat are important.
+\[Comment: Howard's remarks on the '55 Mays 2<sup>nd</sup> boat are important.
 Members of that crew may recall a trial sprint in Long Reach, when they
-beat the 1^st^ boat. Danny was dismayed! It says a lot about the overall
+beat the 1<sup>st</sup> boat. Danny was dismayed! It says a lot about the overall
 strength of the club that we had two such good eights on the water at
-the same time. That 2^nd^ boat bumped the sandwich boat, Trinity Hall 3,
-on the first night, then 1^st^ & 3^rd^ 3, Selwyn 2, Christ's 2 and Caths
+the same time. That 2<sup>nd</sup> boat bumped the sandwich boat, Trinity Hall 3,
+on the first night, then 1<sup>st</sup> & 3<sup>rd</sup> 3, Selwyn 2, Christ's 2 and Caths
 2. From that strength, we drew Gordon and Robert for Henley, then Ted
 Jackson , Ian Dodds and David Harper the following year. Riches
 indeed!\]

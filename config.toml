@@ -2,3 +2,8 @@ baseURL = 'https://history.peterhousebc.org/'
 languageCode = 'en-gb'
 title = 'The history of Peterhouse Boat Club'
 theme = 'hugo-book'
+
+[markup]
+  [markup.goldmark]
+    [markup.goldmark.renderer]
+      unsafe = true
