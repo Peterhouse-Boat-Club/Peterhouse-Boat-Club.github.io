@@ -25,6 +25,7 @@ I am writing these notes for the following reasons: The P.B.C. has put up some g
 I attribute this to two things: - 
 
 I. Lack of interest.
+
 II. Bad captaining and coaching.
 
 The former is the natural outcome of the latter.
@@ -43,17 +44,17 @@ I shall endeavour to outline the general programme for the year, which I don't t
 
 ## MICHAELMAS TERM
 
-As soon as you can after term starts, put up a notice in the "Sex," to the effect that: "Those who wish to go in for rowing or coxing are requested to put down their names, weights and previous experience." Besides thisk send another notice round Hall calling people's attention to it. You will find, howeverk that this is not enough, so you'll have to be after the men yourself. You will naturally come into conflict with the Rugger and Soccer captains, and as these two games are generally more popular you will have to "gang warily." Don't fight these men, make friends with them, and they will probably let you have more men than if you wage war on them.
+As soon as you can after term starts, put up a notice in the "Sex," to the effect that: "Those who wish to go in for rowing or coxing are requested to put down their names, weights and previous experience." Besides this, send another notice round Hall calling people's attention to it. You will find, howeverk that this is not enough, so you'll have to be after the men yourself. You will naturally come into conflict with the Rugger and Soccer captains, and as these two games are generally more popular you will have to "gang warily." Don't fight these men, make friends with them, and they will probably let you have more men than if you wage war on them.
 
 A meeting is held avout the first or second week after term starts. After the usual reading of the minutes, etc., give a general idea of the year's programme, and a clear one of the term's. A financial meeting of the Amal. is also held about this time, at which you will have to present your estimate of expenses.
 
-Your chief care should be to knock Fresher's into shape. Above all, spare no pains with heavy men; they take a good deal of teaching, but turn out the most useful in the end. You will have to work jolly hard, as _this term the basis for the Lents and Mays is laid._ Have as many Crock Eights out as you can, and give them a week strict training. Having many boats out will give you more people to choose from laterkl and also cfreates greater competetition among the men. Row the Crock Eights race at the end of November.
+Your chief care should be to knock Fresher's into shape. Above all, spare no pains with heavy men; they take a good deal of teaching, but turn out the most useful in the end. You will have to work jolly hard, as _this term the basis for the Lents and Mays is laid._ Have as many Crock Eights out as you can, and give them a week strict training. Having many boats out will give you more people to choose from later and also creates greater competetition among the men. Row the Crock Eights race at the end of November.
 
 Besides this, there are the Light Fours and the Colquhoun Sculls. If you have a boat for the former and have a good crew, have a shot at them. They are a great test of oarsmanship, and one learns a great deal. If you or anybody else is a sculler, go in the for the Colquhouns. You may not win, but it is good practice. In general, encourage sculling as much as possible. It makes one familiar with the "feel" and balancing of a boat.
 
 If you are in the 'Varsity Trial Eights, tell your Secretary exactly what you want, and come and have a look at things as often as you can.
 
-_Re_ trialsk send in the names of men you would like to have tried to the Secretary C.U.B.C. If you think you have a change yourself, get your Secretary to send in the names.
+_Re_ trials, send in the names of men you would like to have tried to the Secretary C.U.B.C. If you think you have a change yourself, get your Secretary to send in the names.
 
 A word as to Freshers who join the Boat Club. They are funny creatures, and generally consist of three varieties. Some are most extraordinarily casual. They generally have been demi-gods at school, and have rather a fine idea of themselves. These people want snubbing and sitting on, but carefully, as you don't want to lose them. Others are exuberant, making speeches, and think they know everything. Humour tgen abd talk to them in a fatherly manner; they generally turn out all right. The third sort are generally very few and far between, and are everything they should be. They are the best of the lot, but not numerous. If you are lucky enough to find any, freeze on to them.
 
