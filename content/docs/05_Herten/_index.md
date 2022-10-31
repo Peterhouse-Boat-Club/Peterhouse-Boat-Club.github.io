@@ -6,7 +6,7 @@ title: "A Few Notes for Future P.B.C Captains"
 
 # A Few Notes for Future P.B.C Captains
 
-BY 
+BY
 
 W . G. HERTEN
 
@@ -20,9 +20,9 @@ W . G. HERTEN
 
 Captain, 1920-21.
 
-I am writing these notes for the following reasons: The P.B.C. has put up some good shows in the past, but it has also put up some jolly bad ones, and unfortunately, at the time of writing, the latter outweigh the former. 
+I am writing these notes for the following reasons: The P.B.C. has put up some good shows in the past, but it has also put up some jolly bad ones, and unfortunately, at the time of writing, the latter outweigh the former.
 
-I attribute this to two things: - 
+I attribute this to two things: -
 
 I. Lack of interest.
 
@@ -42,7 +42,7 @@ If the many who was captain before you had gone down, impress on those old May-c
 
 I shall endeavour to outline the general programme for the year, which I don't think changes much. You have probably been elected at the end of the preceding May Term, and you enter office on the following academical year. If you have veen elected at any other time, you will have the ex-captain to help and advise you.
 
-## MICHAELMAS TERM
+## MICHAELMAS TERM.
 
 As soon as you can after term starts, put up a notice in the "Sex," to the effect that: "Those who wish to go in for rowing or coxing are requested to put down their names, weights and previous experience." Besides this, send another notice round Hall calling people's attention to it. You will find, howeverk that this is not enough, so you'll have to be after the men yourself. You will naturally come into conflict with the Rugger and Soccer captains, and as these two games are generally more popular you will have to "gang warily." Don't fight these men, make friends with them, and they will probably let you have more men than if you wage war on them.
 
@@ -58,6 +58,12 @@ _Re_ trials, send in the names of men you would like to have tried to the Secret
 
 A word as to Freshers who join the Boat Club. They are funny creatures, and generally consist of three varieties. Some are most extraordinarily casual. They generally have been demi-gods at school, and have rather a fine idea of themselves. These people want snubbing and sitting on, but carefully, as you don't want to lose them. Others are exuberant, making speeches, and think they know everything. Humour tgen abd talk to them in a fatherly manner; they generally turn out all right. The third sort are generally very few and far between, and are everything they should be. They are the best of the lot, but not numerous. If you are lucky enough to find any, freeze on to them.
 
-I shall not enter into a treatise on coaching, as on this subject there is plenty to be read in books like "The Complete Oarsman," by Lehmann, and Dr. Warre's "Grammar of Rowing." Also "Notes on Bruce's Coaching," several copies of which are in the boathouse. But one of the most difficult things, and which I have never been able to read anything about, is, what exactly to say to a Fresher, who has never had an oar in his hand before. It's useless to set down a general rule.
+I shall not enter into a treatise on coaching, as on this subject there is plenty to be read in books like "The Complete Oarsman," by Lehmann, and Dr. Warre's "Grammar of Rowing." Also "Notes on Bruce's Coaching," several copies of which are in the boathouse. But one of the most difficult things, and which I have never been able to read anything about, is, what exactly to say to a Fresher, who has never had an oar in his hand before. It's useless to set down a general rule. Most people start by giving a most tremendous hoik with their arms. It would be advisable to start out by showing them how to sit, hold the oar, keep a straight body, etc., and then impressing on them that the pulling is done by the body combined with a hard drive with the legs, and not with the arms, which might be comparable to two pieces of rope with iron hooks attached to the end, reaching from the shoulder to the oar. Looseness and freedom of movement should be talked about often. Once these things have been grasped, one can on to feet, strong position, etc. Be careful not to use too technical language. If you tell a man he is not turning off his feature, he will probably not know what you mean. Explain things to him carefully, and show him how it is probably due to his faulty wrist work i.e., not doing the turning with his inside hand, etc. The same with other faults, always trace them to their origin. This is important.
 
-(Resume: Top of page 8)
+Hold meetings of your old May Colour coaches in your rooms, and tell them what to go for, thus ensuring a uniform style. Give each coach a copy of Bruce's Notes and Havilland's "Elements of Rowing," copies of which are to be kept in the boarhouse cupboard. The race, though a time race, should be rowed as much like a bumping race as possbile. Let them start 100 yards apart, and, if possible, have a three-minute, minute and starting gun. All the impedimenta, i.e., gungs, posts, etc., may be hired from the C.U.B.C., by applying to their boatman. The coack pots are bought at Munsey's, on Market Hill. If you have a crock supper, permission is necessary from the Tutor and the Steward, and be vareful that no damage is done to the college.
+
+After the crocks, start forming the 1st Lent boat so as to have no trouble in starting at the beginning of the Lent Term. A few days before the end of term call a meteting, at which the officers resign and are generally re-elected. Impress on the first boat not to be too late in coming up, and remind the Hon. Treasurer of the Amal. to pay the boat's weekly wages through a bank.
+
+## LENT TERM.
+
+(Resume: Mid page 9)
