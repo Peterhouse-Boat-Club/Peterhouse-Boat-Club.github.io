@@ -66,4 +66,82 @@ After the crocks, start forming the 1st Lent boat so as to have no trouble in st
 
 ## LENT TERM.
 
-(Resume: Mid page 9)
+At a C.U.B.C. meeting at the end of last term the dates of the Lents will probably have been fixed, and this term you will reap the fruits of your last term's coaching. If you have worked hard, you will have the makings of a good crew, otherwise you won't have time to make up for what you have neglected. In selecting a crew, of course, don't be influenced by any personal considerations, and, if possible, select a crew of really hard workers. As captain you will probably be ineligible to row, so your job will be to coach the second boat, always provided youy have been successful in finding a Trial Cap to coach the 1st boat. Never keep an outside coach waiting through unpunctuality, etc. Remember he is giving up much of his time and taking a great deal of trouble with you, and therefore you should treat him as well as possible. Have him to lunch and tea several times, and talk things over with him. Once times are settled, leave things to him, but continue to keep and eye on him. Put your men into training for three weeks. I am giving a list of training rules furhter down. Don't allow absence from the boat on any account, thogught you may have to argue with a chap for hours. If anybody should break training, kick him out. Men in training are rather apt to become depressed, and thempers are often short. So always keep optimisitc and cheerful, and never be downhearted, because if you are everybody else will be too.
+
+Hold the usual Boat Club meeting at the begiunning of the term, and present your estimates at the financial meeting of the Amal. Entrace fees for the Lents will either be communicated to you, or else look them up in the C.U.B.C. rules. Include a present for the coach.
+
+As regards the races: Get the boatman to have the boats down at the peg by the railway bridge a good hour's time before it is necessary. See that he is there at the start to push the boat out. Don't forget your stop-watch, and see that it synchronises with the starter's. A revolver is often useful for giving ten, as a coach is seldom heard during the race. Other things you will probably remember from your own Lents.
+
+Other races coming off are the Clinker Fours, Paird, Junior Sculls and Freshmen's Sculls. Trya nd get people to go in for them, it teaches them a great deal and represents the college.
+
+At the end of the Term fow the Peterhouse Challenge Sculls over the Colquhoun Course, or from Grassy to the Railway Bridge: This depends on the standard of sculling. If you haven't any funnies the boathouse, hire two for a week from Banham's. Starting pistols, etc., are to be had from the C.U.B.C., the same as for the crocks. A cup is given by the P.B.C., to be bought with the entrace fees, plus one pound from the Club. Any previous winners receive twenty yards penalty.
+
+This brings the Lent Term to an end. The usual meeting is held. If you are going down that year, elect your successor so that you can lend him a helping hand. If not, then resign at the end of next term. Impress on your men that the work is not over yet. Most fellows are so relieved that the Lents are over, that such remarks as "Never wanting to row again," are not uncommon, also tennis, cricket, a punt, and, last but not least, trips, are great rival attractions. Get people on to slides as soon as possible, and rope in all the Rugger and Soccer men you can find.
+
+## MAY TERM.
+
+The May Term will be found less of a hustle than the Lent Term. Most things that apply to the latter also apply now. Thought you've got over a month to spare, don't waste time, but also be careful not to over-train your men. There is really little else to be said. As I have already remarked, tennis, a punt, exams, and May Week are rather seductive, so keep your eyes open for slacking.
+
+Other events coming off this term are the Lowe Double Sculls and the 'Varsity Pairs.
+
+## HENLEY.
+
+Up to the present, Peterhouse have never been to Henley, but I hope that happy day is not too far off. Though nothing may be won, the presence of critical grey-headed old men on the bank wearing light and dark blue caps, make on row one's very best, and a light ship and the Henley water teach one a great deal.
+
+Firstly, choose the event you are going in for. In order of merit these are:-
+
+Eights:-
+
+- Grand Challenge Cup.
+- Ladies' Challenge Plate.
+- Thames Challenge Cup.
+
+Light Fours:-
+
+- Stewards' Challenge Cup.
+- Wyfold Challenge Cup.
+- Visitors' Challenge Cup.
+
+Rules and Regulations will be found in the Rowing Almanack, especially those _re_ applications for entries, etc.
+
+The next thing is a boat. Hire or borrow one from a friendly college, and combine with someone else for sending it down to Henley, otherwise it will be expensive.
+
+Then comes board and lodgings. There are occasions when the C.U.B.C. arrange all this, and in any case ask the President for advice on this matter, otherwise you'll have to seeabout hiring a furnished house. Take a gyp, a bedder and a boatman with you. Accomodation for boats is provided by the Henley Regatta Committee, also tents fixed up as changing-rooms, etc. Make sure of getting somebody to coach you. At Henley one goes out twice a day, and it is strange that one does not feel half as tired as after one day's outing on the Cam. Go down one or two days beforehand to see that everything is fixed up. Give you men a week's holiday after the Mays, and congregate at Henley on the Saturday after, which gives you just under a fortnight.
+
+The biggest difficulty is, of course, the money question. At present it cannot be done under £150 - that is for ten men for a fortnight (including gyp and bedder), and this money will have to be raised either from the Amalgamation Club or else by passing the hat round.
+
+## IN GENERAL.
+
+1. Attend all C.U.B.C. meetings, and if you are ever in a fix don't hesistate to ask the President for advice.
+2. As soon as the Trial Eights are more or less certain, make sure of getting a Trial-cap to coach the 1st Lent boat, and later the 1st May boat. Speak to the President about it.
+3. Make your estimate for expenses at the beginning of each term, which must be presented at the financial meeting of the Amal. Keep within your estimate, as it makes a very bad impression if you exceed it.
+4. Many men are lost during training owing to illness and boils. Much may be read about over-training, etc. The great thing is to act promptly. As soon as you notice a man getting sleepy, looking rather tired and pale, bad-tempered and with rather a drawn face, let him stay in bed a little longer, and a glass of port or two wouldn't be amiss. Boils are a pleasant result of fixed seats. Impress upon your men the utmost importance of not neglecting rawness and open wounds. As soon as the skin gets slightly raw, dose it with Oxide of Zinc ointment morning and evening, and above all keep the raw places clean. Tell them to wear rowing slips with a large piece of cotton wool inside, which can be changed as often as possible. If things get worse and boils and glands begin to develop, send them to a doctor at once.
+5. Don't forgot to register a bump at the Goldie boathouse, otherwise you'll get fined a guinea.
+6. Try and get to know the C.U.B.C. President, Secretary, Trialcaps, Blues and other captains. They are useful people to know. Don't have any rediculous ideas about "Won't be seen dead being polite to a fellow just because he is a Blue." In life, the better people you mix with, the better man you will be. In rowing it is the same. The better men you row and talk with, the better an oar and coach you will be.
+7. As regards training halls, etc. Permission must be got from the Tutor and the Steward. If questions are asked _re_ anything being usual and having been done in former years, always say "Yes." The only way to get things done by Dons, Cooks and Butlers, is to simply sit down and argue, and stick to it until you get what you want. Make friends with the Cook and Butler, and you'll get more out of them than by animosity, but don't be afraid of them.
+8. See that you men always get a good and plentiful breakfast while in training. Bad ones only cause grumbling and bad tempers.
+9. Insist on a separate training table, and do your utmost to keep it separate from the "common horde."
+10. Don't ever show that you are downhearted. Stick it.
+11. Training rules:-
+
+Training will start on ........ the ......th, for the ......... boat, and for ............... as spare men. The following rules will be observed: 7-15 a.m. Get up. Those living in or near college will congregate in the Old Court for a run. Those living far away are put on their honour to do the same (brisk walk for 20 minutes. 100 yards sprint. Bad weather excepted).
+
+8-15 a.m. Breakfast in Hall.
+
+...... & ...... p.m. Hall.
+
+10-30 p.m. Bed (or earlier).
+
+Drinks: Nothing fizzy, no wines or spirits, etc. Half-pint of beer for lunch, one pint for dinner as maximum.
+
+Food: No pastry, hot muffins, crumpets, hot toast, deadlies or anything stodgy. Roast potatoes only. No eating between meals.
+
+Games: No other strenuous exercise except rowing. All superfluous energy to be worked off in the boat.
+
+Smoking: NONE.
+
+Illness: Crews are under strict orders to report at once if they notice the slightest thign wrong with them, paying special attention to boils, etc.
+
+Sundays: Rules about getting up and breakfast need not be observed.
+
+Last, but not least: The above notes are what I have gone by during my captaincy, and during that time the college did not lose a single place on the river. If you find them useful, see that they are kept in good condition and pass them on to your successor. If you find them no good, then tear them up. Good luck!
