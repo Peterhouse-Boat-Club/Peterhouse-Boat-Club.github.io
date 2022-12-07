@@ -6,7 +6,7 @@ title: "Bumps charts"
 
 # Bumps charts
 
-These charts have been generated using modified versions of [John Walley's](https://www.walley.org.uk/) [CambridgeBumps.com](https://cambridgebumps.com) and [d3-bumps-chart](https://github.com/johnwalley/d3-bumps-chart). The modified versions can be found on [[Peterhouse Boat Club's GitHub](https://github.com/Peterhouse-Boat-Club/) page.
+These charts have been generated using modified versions of [John Walley's](https://www.walley.org.uk/) [CambridgeBumps.com](https://cambridgebumps.com) and [d3-bumps-chart](https://github.com/johnwalley/d3-bumps-chart). The modified versions can be found on [Peterhouse Boat Club's GitHub](https://github.com/Peterhouse-Boat-Club/) page.
 
 Results for some years are missing from John's [bumps-results](https://github.com/johnwalley/bumps-results) repository. If you have copies of these year's results, please consider contributing them back.
 
